@@ -1,1 +1,1 @@
-# peagazik.github.io.
+# peagazik.github.io
